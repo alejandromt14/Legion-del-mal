@@ -1,0 +1,3 @@
+# Notas
+
+Aceptacion del miembros
